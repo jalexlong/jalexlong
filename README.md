@@ -10,4 +10,4 @@ If you want to reach out for a project, presentation, or anything else please re
 
 📧 `johnalexanderlong@gmail.com`
 📞 ‪`(479) 222-0421‬`
-❌/🐦 @JAlexLong
+❌/🐦 `@JAlexLong`
