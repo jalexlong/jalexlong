@@ -2,7 +2,7 @@
 
 - I'm in my *second* year of being a computer science educator 🖥️⌨️🖱️ and I **love** my job! ❤️
 
-- My bachelor degree is in *Music* Education - I am a percussionist 🥁 pianist 🎹 and vocalist 🎤 and love music of all types 🎷
+- My bachelor degree is actually in *Music* Education - I am a percussionist 🥁 pianist 🎹 and vocalist 🎤 and love music of all types 🎷
 
 - I find a lot of different things interesting, but I gravitate toward -> chess ♟️ go/baduk ⚫⚪ programming 💻 music 💿 video games 🎮
 
