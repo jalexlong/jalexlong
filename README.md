@@ -1,4 +1,4 @@
-👋 Hi, I’m @JAlexLong, but typically just go by Alex. 😄 I'm a level 30 human 🤵 who is trying to make a difference in the world one student at a time. 👨‍🏫
+👋 Hi, I’m @JAlexLong, but typically just go by Alex. 😄 I'm a level 31 human 🤵 who is trying to make a difference in the world one student at a time. 👨‍🏫
 
 - I'm in my *third* year of being a computer science educator 🖥️⌨️🖱️ and I **love** my job! ❤️
 
