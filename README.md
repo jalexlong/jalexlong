@@ -8,6 +8,5 @@
 
 If you want to reach out for a project, presentation, or anything else please reach out to me anytime at one of my contacts below. 😎
 
-📧 `johnalexanderlong@gmail.com`
-📞 ‪`(479) 222-0421‬`
+📧 `jalexlong@proton.me`
 ❌/🐦 `@JAlexLong`
