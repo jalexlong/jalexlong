@@ -1,4 +1,4 @@
-👋 Hi, I’m sp3ctr 👻 I'm a high school teacher who is trying to make a difference in the world one student at a time. 👨‍🏫
+👋 Hi, I’m Alex! I'm a high school teacher who is trying to make a difference in the world one student at a time. 👨‍🏫
 
 - I'm going into my *fourth* year of being a computer science and cybersecurity teacher 🖥️⌨️🖱️ and I **love** my job! ❤️
 
