@@ -1,6 +1,6 @@
 👋 Hi, I’m Alex! I'm a high school teacher who is trying to make a difference in the world one student at a time. 👨‍🏫
 
-- I'm going into my *fourth* year of being a computer science and cybersecurity teacher 🖥️⌨️🖱️ and I **love** my job! ❤️
+- I'm finishing up my *fourth* year of being a computer science and cybersecurity teacher 🖥️⌨️🖱️ and I **love** my job! ❤️
 
 - My bachelor degree is in K-12 Music Education - I am a percussionist 🥁 pianist 🎹 and vocalist 🎤 and love music of all types 🎷
 
