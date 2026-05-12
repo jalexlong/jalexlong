@@ -8,6 +8,6 @@
 
 - I find a lot of different things interesting, but I mostly gravitate toward -> chess ♟️ go/baduk ⚫⚪ programming 💻 music 💿 video games 🎮
 
-If you want to collaborate on a project, presentation, or anything else please reach out to me anytime at:
+If you want to collaborate on a project, presentation, or anything else please reach out to me anytime.
 
 📧 [Email Me](mailto://jalexlong@proton.me)
