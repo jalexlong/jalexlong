@@ -4,7 +4,7 @@
 
 - My bachelor degree is in K-12 Music Education - I am a percussionist 🥁 pianist 🎹 and vocalist 🎤 and love music of all types 🎷
 
-- I love using and advocating for software that is free as in "freedom" and not in price. Libre > Open Source
+- I love using and advocating for software that is free as in "freedom" and not in price. Libre > Free Software
 
 - I find a lot of different things interesting, but I mostly gravitate toward -> chess ♟️ go/baduk ⚫⚪ programming 💻 music 💿 video games 🎮
 
